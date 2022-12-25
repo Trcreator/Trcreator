@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Trcreator
 - 👀 I’m interested in coding
-- 🌱 I’m making jokes viruses and more
+- 🌱 I’m making jokes viruses and cheats
 - .....................................
 - my email:hehewtfff@gmail.com
 
